@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sunepanmann115
-- 👀 I’m interested in ... Chinese,Piano
+- 👀 I’m interested in ... Chinese,music theory
 - 🌱 I’m currently learning ... Electronics
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... secret for now
